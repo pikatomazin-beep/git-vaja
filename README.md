@@ -1,0 +1,4 @@
+1. dejstvo: vroca cokolada je okusna
+2. dejstvo vroco cokolado lahko naredimo iz praska
+3. dejstvo k vroci cokoladi pase smetana
+4. 
